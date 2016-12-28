@@ -1,5 +1,5 @@
 ## 自我介绍
-![](http://imgsrc.baidu.com/forum/w%3D580/sign=27aa8284f536afc30e0c3f6d8318eb85/26f22782b9014a90d2e689f9ab773912b11bee84.jpg)
+![](http://imgsrc.baidu.com/forum/pic/item/cc24cb160924ab18f033690636fae6cd7b890b98.jpg)
 * 姓名：刘子豪
 * 学号：13081107
 * 生日：1996.04.02
